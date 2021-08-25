@@ -1,0 +1,1 @@
+6-7 potatoes,oil for deep frying,peeler knife,red chilly powder,salt,black peper,chat masala 
